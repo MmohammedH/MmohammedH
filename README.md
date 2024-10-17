@@ -1,4 +1,4 @@
-## Hi there 👋, I'm Mohammed Hussain
+## 👋 Hi, I'm Mohammed Hussain
 
 🎓 **Pre-final Year B.Tech Student** | **Computer Science**  
 📍 **Indian Institute of Information Technology, Nagpur**  
